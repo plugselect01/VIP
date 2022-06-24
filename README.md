@@ -1,2 +1,3 @@
-SC COPY PUNYA ZAXYY X LANA 🗿
-CUMA UBAH WARNA DOANG 
+SC Copy Punya Zaxyy X Lana 🗿
+Cuma Ubah Warna Doang 
+g
